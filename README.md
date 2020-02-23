@@ -1,1 +1,1 @@
-[My homepage](seniorious.cc)
+[My homepage](https://seniorious.cc)
